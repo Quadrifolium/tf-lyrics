@@ -86,7 +86,7 @@ that I wish to hide in my file
 I have a perfect plan about you yet I haven't shown,  
 which I want to tell you when I'm grown --  
 To buy the largest house, the smartest cars,  
-to see places and bazaars
+to see palaces and bazaars
 
 我们再来一遍
 
