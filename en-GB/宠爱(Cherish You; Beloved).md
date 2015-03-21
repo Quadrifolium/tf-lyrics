@@ -30,7 +30,7 @@ because you are always somewhere nearby
 I wonder how to solve that geometry,  
 and why you have your face turned shy
 
-A->
+A ↓
 
 我只想给你给你宠爱  
 这算不算不算爱  
@@ -66,7 +66,7 @@ a beam of mild light
 I clearly catch the sight  
 This is love
 
-<-A
+↑ A
 
 小小的年纪还不懂什么是爱  
 却被你甜甜的笑容打败  
