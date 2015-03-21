@@ -1,9 +1,9 @@
-ï»¿# å® çˆ±
+# ³è°®
 
 ## Cherish You (Beloved)
 
-ä½œæ›²ï¼šåˆ˜ä½³å‡¯  
-ä½œè¯ï¼šç‹éŸµéŸµ
+×÷Çú£ºÁõ¼Ñ¿­  
+×÷´Ê£ºÍõÔÏÔÏ
 
 Composed by LIU Jia-kai  
 Lyrics by WANG Yun-yun
@@ -12,20 +12,20 @@ Lyrics by WANG Yun-yun
 
 ---
 
-å°å°çš„å¹´çºªè¿˜ä¸æ‡‚ä»€ä¹ˆæ˜¯çˆ±  
-å´è¢«ä½ ç”œç”œçš„ç¬‘å®¹æ‰“è´¥  
-ä½ çœ¨ç€å¤§å¤§çš„çœ¼ç›é‚£ä¹ˆå¯çˆ±  
-è¯´è¯çš„æ‰‹å¾€å“ªå„¿æ‘†
+Ğ¡Ğ¡µÄÄê¼Í»¹²»¶®Ê²Ã´ÊÇ°®  
+È´±»ÄãÌğÌğµÄĞ¦Èİ´ò°Ü  
+ÄãÕ£×Å´ó´óµÄÑÛ¾¦ÄÇÃ´¿É°®  
+Ëµ»°µÄÊÖÍùÄÄ¶ù°Ú
 
 Though untimely for me to know what love is,  
 I'm intoxicated by your smile  
 So adorable your bright eyes blinking in peace,  
 and your arms waving in your style
 
-æ¯ä¸€å¤©ä¸Šè¯¾ä¸‹è¯¾éƒ½ä¼šæœ‰ä½ çš„é™ªä¼´  
-æ¯ä¸€ç§’å†…å®¹æˆ‘éƒ½å¾ˆå–œæ¬¢  
-è§£ä¸å¼€çš„å‡ ä½•å›¾æ¡ˆå’Œä½ çº¢çš„è„¸  
-åˆ°åº•æœ‰å¤šå°‘ä¸ªç­”æ¡ˆ
+Ã¿Ò»ÌìÉÏ¿ÎÏÂ¿Î¶¼»áÓĞÄãµÄÅã°é  
+Ã¿Ò»ÃëÄÚÈİÎÒ¶¼ºÜÏ²»¶  
+½â²»¿ªµÄ¼¸ºÎÍ¼°¸ºÍÄãºìµÄÁ³  
+µ½µ×ÓĞ¶àÉÙ¸ö´ğ°¸
 
 I like every second in school playing or reading poetry,  
 because you are always somewhere nearby  
@@ -34,34 +34,34 @@ and why you have your face turned shy
 
 <1>
 
-æˆ‘åªæƒ³ç»™ä½ ç»™ä½ å® çˆ±  
-è¿™ç®—ä¸ç®—ä¸ç®—çˆ±  
-æˆ‘è¿˜è¿˜è¿˜æä¸æ˜ç™½
+ÎÒÖ»Ïë¸øÄã¸øÄã³è°®  
+ÕâËã²»Ëã²»Ëã°®  
+ÎÒ»¹»¹»¹¸ã²»Ã÷°×
 
 I want to give you my cherishing  
 Does it shows I'm in love  
 Can't find a way to shape it
 
-å¿«ä¹çš„äº‹æƒ³è·Ÿä½ åˆ†äº«  
-éš¾è¿‡æƒ³ç»™ä½ è‚©è†€  
-ç¬¬ä¸€æ¬¡ä¸ºä¸€ä¸ªäººç´§å¼ 
+¿ìÀÖµÄÊÂÏë¸úÄã·ÖÏí  
+ÄÑ¹ıÏë¸øÄã¼ç°ò  
+µÚÒ»´ÎÎªÒ»¸öÈË½ôÕÅ
 
 I wish to make you happy, pleasant  
 Delight you when you feel down  
 Cannot let you go from the present
 
-æˆ‘å¥½æƒ³å¯¹ä½ å¯¹ä½ å® çˆ±  
-æ‰çŸ­çŸ­å‡ ä¸ªç¤¼æ‹œ  
-å¿ƒæƒ…åå› ä¸ºä½ ä¸åœ¨
+ÎÒºÃÏë¶ÔÄã¶ÔÄã³è°®  
+²Å¶Ì¶Ì¼¸¸öÀñ°İ  
+ĞÄÇé»µÒòÎªÄã²»ÔÚ
 
 How I wish to be with cherished you  
 I feel upset without you  
 for only a week or two
 
-æœ‰ä¸€é“å…‰  
-æš–æš–åœ°æ´’ä¸‹æ¥  
-å¿ä¸ä½çš„å°æœŸå¾…  
-å› ä¸ºçˆ±
+ÓĞÒ»µÀ¹â  
+Å¯Å¯µØÈ÷ÏÂÀ´  
+ÈÌ²»×¡µÄĞ¡ÆÚ´ı  
+ÒòÎª°®
 
 There warmly shines  
 a beam of mild light  
@@ -70,36 +70,36 @@ This is love
 
 <1/>
 
-å°å°çš„å¹´çºªè¿˜ä¸æ‡‚ä»€ä¹ˆæ˜¯çˆ±  
-å´è¢«ä½ ç”œç”œçš„ç¬‘å®¹æ‰“è´¥  
-ä½ çœ¨ç€å¤§å¤§çš„çœ¼ç›é‚£ä¹ˆå¯çˆ±  
-å¥½æƒ³æŠŠä½ è£…è¿›å£è¢‹
+Ğ¡Ğ¡µÄÄê¼Í»¹²»¶®Ê²Ã´ÊÇ°®  
+È´±»ÄãÌğÌğµÄĞ¦Èİ´ò°Ü  
+ÄãÕ£×Å´ó´óµÄÑÛ¾¦ÄÇÃ´¿É°®  
+ºÃÏë°ÑÄã×°½ø¿Ú´ü
 
 Though untimely for me to know what love is,  
 I'm intoxicated by your smile  
 So adorable your bright eyes blinking in peace,  
 that I wish to hide in my file
 
-å…¶å®æˆ‘æœ‰ä¸€ä¸ªå¥½çš„æƒ³æ³•å‡†å¤‡æ‰“ç®—  
-ç•™åˆ°åå¹´ä»¥åå†è·Ÿä½ è¯´  
-ç»™ä½ ä¹°æœ€å¤§çš„æˆ¿å­ æœ€é…·çš„æ±½è½¦  
-èµ°éä¸–ç•Œæ¯ä¸ªè§’è½
+ÆäÊµÎÒÓĞÒ»¸öºÃµÄÏë·¨×¼±¸´òËã  
+Áôµ½Ê®ÄêÒÔºóÔÙ¸úÄãËµ  
+¸øÄãÂò×î´óµÄ·¿×Ó ×î¿áµÄÆû³µ  
+×ß±éÊÀ½çÃ¿¸ö½ÇÂä
 
 I have a perfect plan about you yet I haven't shown,  
 which I want to tell you when I'm grown --  
 To buy the largest house, the smartest cars,  
 to see places and bazaars
 
-ï¼ˆæˆ‘ä»¬å†æ¥ä¸€éï¼‰
+£¨ÎÒÃÇÔÙÀ´Ò»±é£©
 
 (One more time)
 
 (Repeat <1/>)
 
-å°±è¿™æ ·çœ‹ç€ä½   
-è„¸çº¢çº¢åœ°å‘¼å¸  
-åœ¨æˆ‘ä»¬çš„å¿ƒé‡Œ  
-ä½ å°±æ˜¯æˆ‘çš„è¿ªæ–¯å°¼
+¾ÍÕâÑù¿´×ÅÄã  
+Á³ºìºìµØºôÎü  
+ÔÚÎÒÃÇµÄĞÄÀï  
+Äã¾ÍÊÇÎÒµÄµÏË¹Äá
 
 You are like fine art,  
 your dainty face and breath  
@@ -108,28 +108,28 @@ you are the Disney Princess
 
 (One Two Three Go!)
 
-è¿™ä¸åªæ˜¯æˆ‘çš„show  
-ä½ ä¸è¦èµ°  
-ç­‰ä¸€ç­‰å€™  
-ç­‰æˆ‘èƒ½ç‰µä½ çš„æ‰‹
+Õâ²»Ö»ÊÇÎÒµÄshow  
+Äã²»Òª×ß  
+µÈÒ»µÈºò  
+µÈÎÒÄÜÇ£ÄãµÄÊÖ
 
 This is not a one-man show,  
 we need you  
 Please behold  
 One day I will get to you
 
-ç©¶ç«Ÿæ˜¯ä¸æ˜¯çˆ±  
-åˆ°åº•æ˜¯ä¸æ˜¯çˆ±  
-æˆ‘çŸ³å¤´æœ¨å¤´é¦’å¤´è‘±å¤´è„‘è¢‹ä¸å¤Ÿ
+¾¿¾¹ÊÇ²»ÊÇ°®  
+µ½µ×ÊÇ²»ÊÇ°®  
+ÎÒÊ¯Í·Ä¾Í·ÂøÍ·´ĞÍ·ÄÔ´ü²»¹»
 
 Is it love?  
 Can it be love?  
 My block head, logger head, hammer head  
 can't get
 
-æˆ‘æƒ³è¿™å°±æ˜¯çˆ±  
-æ˜æ˜è¿™å°±æ˜¯çˆ±  
-æˆ‘å¬ä½  çœ‹ä½  æƒ³ä½  è¦ä½ å¼€å¿ƒæ²¡å¤Ÿ
+ÎÒÏëÕâ¾ÍÊÇ°®  
+Ã÷Ã÷Õâ¾ÍÊÇ°®  
+ÎÒÌıÄã ¿´Äã ÏëÄã ÒªÄã¿ªĞÄÃ»¹»
 
 I think it is love  
 I believe in this love  
