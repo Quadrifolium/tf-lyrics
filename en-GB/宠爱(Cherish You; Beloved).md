@@ -1,6 +1,4 @@
-# 宠爱
-
-## Cherish You (Beloved)
+# 宠爱<br/>Cherish You (Beloved)
 
 作曲：刘佳凯  
 作词：王韵韵
@@ -32,7 +30,7 @@ because you are always somewhere nearby
 I wonder how to solve that geometry,  
 and why you have your face turned shy
 
-<1>
+A->
 
 我只想给你给你宠爱  
 这算不算不算爱  
@@ -68,7 +66,7 @@ a beam of mild light
 I clearly catch the sight  
 This is love
 
-<1/>
+<-A
 
 小小的年纪还不懂什么是爱  
 却被你甜甜的笑容打败  
@@ -90,11 +88,11 @@ which I want to tell you when I'm grown --
 To buy the largest house, the smartest cars,  
 to see places and bazaars
 
-（我们再来一遍）
+我们再来一遍
 
-(One more time)
+One more time
 
-(Repeat <1/>)
+(Repeat A)
 
 就这样看着你  
 脸红红地呼吸  
@@ -106,7 +104,7 @@ your dainty face and breath
 Deep in our heart,  
 you are the Disney Princess
 
-(One Two Three Go!)
+One Two Three Go!
 
 这不只是我的show  
 你不要走  
@@ -136,6 +134,6 @@ I believe in this love
 I see you, hear you, miss you,  
 all of these words are true
 
-(Repeat <1/>)
+(Repeat A)
 
-(Repeat <1/>)
+(Repeat A)
