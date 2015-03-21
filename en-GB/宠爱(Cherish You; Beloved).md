@@ -37,7 +37,7 @@ A ↓
 我还还还搞不明白
 
 I want to give you my cherishing  
-Does it shows I'm in love  
+Does it show that I'm in love  
 Can't find a way to shape it
 
 快乐的事想跟你分享  
