@@ -16,9 +16,9 @@ Lyrics by WANG Yun-yun
 说话的手往哪儿摆
 
 Though untimely for me to know what love is,  
-I'm intoxicated by your smile  
+I'm intoxicated by your smile.  
 So adorable your bright eyes blinking in peace,  
-and your arms waving in your style
+and your arms waving in your style.
 
 每一天上课下课都会有你的陪伴  
 每一秒内容我都很喜欢  
@@ -26,9 +26,9 @@ and your arms waving in your style
 到底有多少个答案
 
 I like every second in school playing or reading poetry,  
-because you are always somewhere nearby  
+because you are always somewhere nearby.  
 I wonder how to solve that geometry,  
-and why you have your face turned shy
+and why you have your face turned shy.
 
 A ↓
 
@@ -36,25 +36,25 @@ A ↓
 这算不算不算爱  
 我还还还搞不明白
 
-I want to give you my cherishing  
-Does it show that I'm in love  
-Can't find a way to shape it
+I want to give you my cherishing,  
+does it show that I'm in love,  
+can't find a way to shape it.
 
 快乐的事想跟你分享  
 难过想给你肩膀  
 第一次为一个人紧张
 
-I wish to make you happy, pleasant  
-Delight you when you feel down  
-Cannot let you go from the present
+I wish to make you happy, pleasant,  
+delight you when you feel down,  
+cannot let you go from the present.
 
 我好想对你对你宠爱  
 才短短几个礼拜  
 心情坏因为你不在
 
-How I wish to be with cherished you  
+How I wish to be with cherished you,  
 I feel upset without you  
-for only a week or two
+for only a week or two.
 
 有一道光  
 暖暖地洒下来  
@@ -62,9 +62,9 @@ for only a week or two
 因为爱
 
 There warmly shines  
-a beam of mild light  
-I clearly catch the sight  
-This is love
+a beam of mild light,  
+I clearly catch the sight.  
+This is love.
 
 ↑ A
 
@@ -74,9 +74,9 @@ This is love
 好想把你装进口袋
 
 Though untimely for me to know what love is,  
-I'm intoxicated by your smile  
+I'm intoxicated by your smile.  
 So adorable your bright eyes blinking in peace,  
-that I wish to hide in my file
+that I wish to hide in my file.
 
 其实我有一个好的想法准备打算  
 留到十年以后再跟你说  
@@ -86,11 +86,11 @@ that I wish to hide in my file
 I have a perfect plan about you yet I haven't shown,  
 which I want to tell you when I'm grown --  
 To buy the largest house, the smartest cars,  
-to see palaces and bazaars
+to see palaces and bazaars.
 
 我们再来一遍
 
-One more time
+One more time.
 
 (Repeat A)
 
@@ -100,9 +100,9 @@ One more time
 你就是我的迪斯尼
 
 You are like fine art,  
-your dainty face and breath  
-Deep in our heart,  
-you are the Disney Princess
+your dainty face and breath.  
+Deep in our hearts,  
+you are the Disney Princess.
 
 One Two Three Go!
 
@@ -112,9 +112,9 @@ One Two Three Go!
 等我能牵你的手
 
 This is not a one-man show,  
-we need you  
-Please behold  
-One day I will get to you
+we need you.  
+Please behold,  
+one day, I will get to you.
 
 究竟是不是爱  
 到底是不是爱  
@@ -123,16 +123,16 @@ One day I will get to you
 Is it love?  
 Can it be love?  
 My block head, logger head, hammer head  
-can't get
+can't get.
 
 我想这就是爱  
 明明这就是爱  
 我听你 看你 想你 要你开心没够
 
-I think it is love  
-I believe in this love  
+I think it is love.  
+I believe in this love.  
 I see you, hear you, miss you,  
-all of these words are true
+all of these words are true.
 
 (Repeat A)
 

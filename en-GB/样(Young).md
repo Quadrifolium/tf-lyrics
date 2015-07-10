@@ -18,7 +18,7 @@ Lyrics by LI Yu-zhe
 Meandering path winding all along,  
 sometimes what I believe never blossoms or ripe.  
 Fallen leaves clumping on paving stones,  
-Breeze wafting you and me, leaving desert alone.
+breeze wafting you and me, leaving desert alone.
 
 小声地 唱着我们的歌  
 歌词像本小说 渺小到失措  
@@ -79,8 +79,8 @@ stars are always shining overhead.
 老地方 依旧安然无恙  
 依旧人来人往 像从前一样
 
-Whirling swift the pinwheel in the tale.  
-Who's always complaining, the life's confusing.  
+Whirling swift the pinwheel in the tale,  
+who's always complaining the life's confusing.  
 In the old place, things remain all the same,  
 they come and go away, we play and leave stage.
 
@@ -92,7 +92,7 @@ they come and go away, we play and leave stage.
 我的模样
 
 Shifting seasons take all the past away,  
-Steady steps take to get the hope drawn,  
+steady steps take to get the hope drawn,  
 I want people all around to say  
 I am living young.
 

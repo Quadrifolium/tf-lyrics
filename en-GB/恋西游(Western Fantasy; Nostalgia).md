@@ -17,7 +17,7 @@ Lyrics by Vincent Fang
 青春往事 随北风绕啊绕
 
 Moonlight casting on bridge, bell tolling at night.  
-The past hovering in the north wind.  
+The past hovering in the north wind.
 
 古老的街道 路的尽头有座庙  
 谁许愿太过潦草
@@ -61,7 +61,7 @@ How far's left to the West?
 听风沙呼啸 驼铃敲古道  
 千年孤傲 我跟历史过招
 
-Roaring the sandstorm,  tinkling the camel bell.  
+Roaring the sandstorm, tinkling the camel bell.  
 Aloof along, I'm challenging in thousand years.
 
 谁又在谁的 章回小说里逍遥  
@@ -91,7 +91,7 @@ A ↓
 
 Nostalgia brings me back to childhood,  
 when I hadn't got the gold-banded cudgel.  
-Appeared in my dream, the Chaotic Monster,  
+Appeared in my dream, the Chaotic Monster  
 is poorly-named but tender.
 
 恋西游 我回到小时候  
