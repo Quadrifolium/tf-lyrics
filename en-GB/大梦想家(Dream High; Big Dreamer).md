@@ -29,7 +29,7 @@ we got power in the rain.
 准没准备好
 
 Every day, the trifles trouble, the worries double,  
-growing in race with the time  
+growing in race with the time.  
 Actor of the future top level,  
 are you in your prime?
 
@@ -95,7 +95,7 @@ It's a gem shining bright.
 反而更大声地唱  
 YOLO青春 就一次疯狂
 
-Event the storm blows,  
+Even the storm blows,  
 cheer louder my solo.  
 Be bold, and shout YOLO.
 
