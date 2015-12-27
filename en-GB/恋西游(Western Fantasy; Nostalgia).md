@@ -17,7 +17,7 @@ Lyrics by Vincent Fang
 青春往事 随北风绕啊绕
 
 Moonlight casting on bridge, bell tolling at night.  
-The past hovering in the north wind.
+The past is hovering in the north wind.
 
 古老的街道 路的尽头有座庙  
 谁许愿太过潦草
@@ -55,26 +55,26 @@ maybe we could be friends.
 
 Nostalgia brings me back to childhood,  
 when I wish to soar on the cloud.  
-But the banyan of the village was the farthest I reached.  
-How far's left to the West?
+But the banyan of the village was the farthest I have reached.  
+How far is it away from the West?
 
 听风沙呼啸 驼铃敲古道  
 千年孤傲 我跟历史过招
 
 Roaring the sandstorm, tinkling the camel bell.  
-Aloof along, I'm challenging in thousand years.
+Aloof along, I challenge with the thousands of years.
 
 谁又在谁的 章回小说里逍遥  
 一路上除魔斩妖
 
-Who's free and unfeltered in serial novels,  
+Who is free and unfeltered in which serial novel,  
 defeating demons and ghosts on the road.
 
 古镇酒旗飘 夕阳挂树梢  
 檀香袅绕 说书人响板敲
 
-Banners waving, the sun setting on the tree.  
-Incense burning, storyteller banged his block.
+Banners waving, the sun was setting on the tree.  
+Incense burning, a storyteller banged his block.
 
 我们的故事 被吟唱成了传说  
 精彩的情节 好多
@@ -101,8 +101,8 @@ is poorly-named but tender.
 
 Nostalgia brings me back to childhood,  
 when I wish to soar on the cloud.  
-But the banyan of the village was the farthest I reached.  
-How far's left to the West?
+But the banyan of the village was the farthest I have reached.  
+How far is it away from the West?
 
 ↑ A
 
@@ -124,6 +124,6 @@ low-key in attitude, longing for freedom.
 有我
 
 God, human, devil realms  
-scattering legends.  
+are scattering legends.  
 Within the stories,  
 I am.
