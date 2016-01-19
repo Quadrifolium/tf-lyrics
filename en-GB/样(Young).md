@@ -16,7 +16,7 @@ Lyrics by LI Yu-zhe
 风吹动你和我 剩下沙丘荒漠
 
 Meandering path winding all along,  
-sometimes what I believe never blossoms or ripe.  
+sometimes what I believe never blossom or ripe.  
 Fallen leaves clumping on paving stones,  
 breeze wafting you and me, leaving desert alone.
 
@@ -46,7 +46,7 @@ reviving all the past reps.
 落在我的肩膀  
 想起第一次那个模样
 
-Shedding on shoulders,  
+Shedding on my shoulders,  
 blazing limelight from afar,  
 reminiscing our first step to depart.
 
