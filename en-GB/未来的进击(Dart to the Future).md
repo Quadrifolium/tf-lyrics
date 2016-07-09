@@ -21,8 +21,8 @@ Lyrics by HU Zhen
 逆风不畏惧
 
 The dream we started, dart to the future.  
-Don't doubt it, every secret will be brought to light.
-The youthful story is the fate unexplored,
+Don't doubt it, every secret will be brought to light.  
+The youthful story is the fate unexplored,  
 we dare to face the wind.
 
 我们来自不同的路径  
@@ -69,13 +69,13 @@ B ↓
 逆风不畏惧
 
 The dream we started, dart to the future.  
-Don't doubt it, every secret will be brought to light.
-The youthful story is the fate unexplored,
+Don't doubt it, every secret will be brought to light.  
+The youthful story is the fate unexplored,  
 we dare to face the wind.
 
-梦想的约定 未来的进击
-别忘记 都值得我们去探寻
-跨越轨迹 终汇成了回忆
+梦想的约定 未来的进击  
+别忘记 都值得我们去探寻  
+跨越轨迹 终汇成了回忆  
 Dream up! 做我自己
 
 The dream we started, dart to the future.  
