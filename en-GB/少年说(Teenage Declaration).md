@@ -11,7 +11,7 @@
 我就能触及心中的希望  
 Outside, the tree shadows are strengthened long.  
 The sunlight glimmers through the leaves along.  
-Hands stretch out, smiles start,  
+Hands stretch out, smile starts,  
   I touch clearly the hope in the heart.
 
 午后跑道旁弥漫青草香  
