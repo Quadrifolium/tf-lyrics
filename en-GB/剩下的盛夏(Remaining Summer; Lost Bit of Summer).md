@@ -62,7 +62,7 @@ to freeze the day.
 In this summer, I'm stung.  
 In this summer, you smiled.  
 In this summer, it's awkward.  
-In this summer, I got swelled.
+You turned blushed, I got swelled.
 
 剩下的盛夏 被叮了 剩下的盛夏 你笑了  
 剩下的盛夏 尴尬了

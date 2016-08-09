@@ -23,8 +23,8 @@ Dry off the soaked shoes, and set off again.
 Striding footsteps, been washed through,  
 we got power in the rain.
 
-我们 被小事打扰  
-为心事烦恼 骨骼和时间赛跑  
+我们 被小事打扰 为心事烦恼  
+骨骼和时间赛跑  
 未来的最佳男主角  
 准没准备好
 
