@@ -63,7 +63,7 @@ fly to anywhere we haven't seen.
 至少有回忆珍藏
 
 Script the dreams as records,  
-getting closed to big awards.  
+getting close to big awards.  
 Fly the dream high, even if it fall apart,  
 we have memories deep in heart.
 
