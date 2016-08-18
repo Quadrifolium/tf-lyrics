@@ -31,7 +31,7 @@ on the road to the dream, be brave to fly.
 On that day, I waited for you,  
 with flowers in my hands.  
 Schoolmates passed and grinned,  
-that bees found this treasured land.
+because the bees found this treasured land.
 
 被叮了 你笑了 尴尬了 你的脸红了
 
