@@ -27,7 +27,7 @@ breeze wafting you and me, leaving desert alone.
 
 Humming that rhythm of our song,  
 in the narrative plot, we're tiny and lost.  
-Don't be grief, it's the same as before --  
+Don't be grieved, it's the same as before --  
 they come and go away, we play and leave stage.
 
 A ↓
